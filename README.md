@@ -1,4 +1,4 @@
 OH. MY. GAWD!
-You found this thing.
-You are awesome!
+You found meee.
+That's awesome!
 Now please leave.
