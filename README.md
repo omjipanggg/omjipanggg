@@ -1,4 +1,1 @@
-OH. MY. GAWD!
-You found meee.
-That's awesome!
-Now please leave.
+When I was young I was poor, but after years of hard honest and painstaking work, I am no longer young.
